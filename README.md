@@ -1,2 +1,2 @@
-# Tuyul-Milenium-Spammer
-Besutan by NewbieSecurityIndonesia Tidak Di gunakan Untuk publik
+# Tuyul Milenium SPAMER
+PAKE YANG BENER ASU KALO GAK WORK YA BERARTI DAH COID
